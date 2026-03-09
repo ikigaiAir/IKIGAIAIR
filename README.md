@@ -1,6 +1,6 @@
 WHERE CREATIVITY LIVES
 
-UserPlace® is the Creative Extension System that unifies users to collaborate and transform their next brand, website or product vision into reality, without compromise.
+IKIGAIAIR® is the Creative Envirpnment that unifies users to collaborate and transform their next brand, website or product vision into reality, without compromise.
 
 ———
 
